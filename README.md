@@ -1,0 +1,1 @@
+# rc3-hubs-assembly-assets
